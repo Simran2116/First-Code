@@ -1,2 +1,2 @@
-Adding new information
+my name is
 Simran kaur lamba
