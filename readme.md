@@ -1,2 +1,2 @@
 My name is:
-Simran kaur lamba
+Simran Kaur Lamba
